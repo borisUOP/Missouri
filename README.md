@@ -1,2 +1,2 @@
 # Missouri
-Missouri shop
+Missouri Mom and Pop Shop
